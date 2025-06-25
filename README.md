@@ -5,7 +5,7 @@
 
 有任何的事情都可以
 <details>
-<summary> 私信布丁(点击展开) </summary>
+<summary> 私信布丁 </summary>
   
 - **tg**
   `@Tanyin_CR`
