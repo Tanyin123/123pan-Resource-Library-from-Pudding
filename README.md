@@ -7,8 +7,9 @@
 <details>
 <summary> 私信布丁(点击展开) </summary>
   
-@Tanyin_CR
-QQ:2734106036
+  `tg:@Tanyin_CR`
+
+  `QQ:2734106036`
 </details>
 
 番剧合集中有些链接仅有1个字母的大小写差距，浏览器会认错。
