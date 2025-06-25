@@ -1452,6 +1452,8 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 <summary>📁 无限制分享工具秒传 (点击展开)</summary>
 
 ### [github链接](https://github.com/realcwj/123Pan-Unlimited-Share)
-- **攻壳机动队系列 (1995)
+当然，这个文件也可以用前面的油猴脚本秒传到自己的网盘中
+
+- **攻壳机动队系列 (1995)**
   `https://www.123912.com/s/lyn8Vv-1jmod?提取码:BDCR`
 </details>
