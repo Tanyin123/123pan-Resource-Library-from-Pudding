@@ -1465,7 +1465,7 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 
 以 [dyphire](https://github.com/dyphire/mpv-config) 为基础，没有改很多东西
 
-再此万分感谢这位大佬
+在此万分感谢这位大佬
 
 <details>
 <summary>📁 额外功能及具体更改内容 (点击展开)</summary>
