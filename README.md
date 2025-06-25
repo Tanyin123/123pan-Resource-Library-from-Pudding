@@ -10,11 +10,13 @@ QQ:2734106036
 
 遇到这种情况可以在无痕浏览下打开链接，或者复制链接到123云盘客户端打开。
 
-# 更新中 [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
+# 更新中
 
 <details>
 <summary>📁 查看更新中的番剧列表 (点击展开)</summary>
 
+### [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
+  
 ### 影视资源列表
 - **mono女孩 (2025)**  
   `https://www.123912.com/s/lyn8Vv-iWmod?提取码:BDCR`
