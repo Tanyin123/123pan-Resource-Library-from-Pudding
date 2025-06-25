@@ -1436,3 +1436,12 @@ https://www.123912.com/s/lyn8Vv-Uo1od?提取码:BDCR
 2025/05/12 17:30:50
 https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 </details>
+
+# 违规文件秒传
+
+<details>
+<summary>📁 油猴脚本秒传 (点击展开)</summary>
+### [教程](https://www.123912.com/s/lyn8Vv-B31od)
+
+- *憧憬成为魔法少女 (2023)**  
+  `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
