@@ -8,7 +8,7 @@
 <summary> 私信布丁 </summary>
   
 - **tg**
-  ` @Tanyin_CR `
+  `@Tanyin_CR `
 
 - **QQ**
   ` 2734106036 `
