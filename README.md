@@ -1476,10 +1476,12 @@ https://github.com/dyphire/mpv-config
 
 - **按“Ctrl+' ”可以打开弹幕搜索框自行搜索弹幕**
 
-### 来自https://github.com/Tony15246/uosc_danmaku
+### 来自 [Tony15246](https://github.com/Tony15246/uosc_danmaku)
 
 `弹幕大小 42 `
+
 `透明度 80 `
+
 `弹幕出现位置 1.0`
 
 
