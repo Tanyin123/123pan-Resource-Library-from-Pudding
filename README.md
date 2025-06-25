@@ -1463,7 +1463,7 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 
 # 布丁在用的MPV
 
-以 [dyphire](https://github.com/dyphire/mpv-config) 为基础，没有改很多东西
+以 [dyphire \ mpv config](https://github.com/dyphire/mpv-config) 为基础，没有改很多东西 （其实是几乎一模一样）
 
 在此万分感谢这位大佬
 
