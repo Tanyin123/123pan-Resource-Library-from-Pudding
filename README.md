@@ -1472,9 +1472,9 @@ https://github.com/dyphire/mpv-config
 <details>
 <summary>📁 额外功能 (点击展开)</summary>
 
--按“ ' ”可以开关弹幕（英文字符）
+- **按“ ' ”可以开关弹幕（英文字符）**
 
-按“Ctrl+' ”可以打开弹幕搜索框自行搜索弹幕
+- **按“Ctrl+' ”可以打开弹幕搜索框自行搜索弹幕**
 
 来自https://github.com/Tony15246/uosc_danmaku
 如果出现弹幕无法加载的问题，请到~~\mpv_config_BDCR\portable_config\script-opts\uosc_danmaku.conf
