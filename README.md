@@ -1442,7 +1442,16 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 <details>
 <summary>📁 油猴脚本秒传 (点击展开)</summary>
   
-### [教程](https://www.123912.com/s/lyn8Vv-B31od)
+### [教程与脚本](https://www.123912.com/s/lyn8Vv-B31od)
 
-- *憧憬成为魔法少女 (2023)**  
+- **憧憬成为魔法少女 (2023)**  
   `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
+</details>
+
+<details>
+<summary>📁 无限制分享工具秒传 (点击展开)</summary>
+
+### [github链接](https://github.com/realcwj/123Pan-Unlimited-Share)
+- **攻壳机动队系列 (1995)
+  `https://www.123912.com/s/lyn8Vv-1jmod?提取码:BDCR`
+</details>
