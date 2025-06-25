@@ -10,7 +10,7 @@ QQ:2734106036
 
 遇到这种情况可以在无痕浏览下打开链接，或者复制链接到123云盘客户端打开。
 
-# 更新中
+# 更新中番剧
 
 <details>
 <summary>📁 查看更新中的番剧列表 (点击展开)</summary>
@@ -1459,3 +1459,30 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 - **攻壳机动队系列 (1995)**
   `https://www.123912.com/s/lyn8Vv-1jmod?提取码:BDCR`
 </details>
+
+
+# 布丁修改的MPV
+
+以此处获得的成品MPV为基础，没有改很多东西
+
+再此万分感谢这位大佬
+
+https://github.com/dyphire/mpv-config
+
+<details>
+<summary>📁 额外功能 (点击展开)</summary>
+
+-按“ ' ”可以开关弹幕（英文字符）
+
+按“Ctrl+' ”可以打开弹幕搜索框自行搜索弹幕
+
+来自https://github.com/Tony15246/uosc_danmaku
+如果出现弹幕无法加载的问题，请到~~\mpv_config_BDCR\portable_config\script-opts\uosc_danmaku.conf
+中，将DanmakuFactory_Path和OpenCC_Path改成~~\mpv_config_BDCR\portable_config\scripts\uosc_danmaku\bin中对应的DanmakuFactory.exe和opencc.exe路径
+
+例：
+DanmakuFactory_Path=D:\mpv_config_BDCR\portable_config\scripts\uosc_danmaku\bin\DanmakuFactory\DanmakuFactory.exe
+OpenCC_Path=D:\mpv_config_BDCR\portable_config\scripts\uosc_danmaku\bin\OpenCC_Windows\opencc.exe
+
+
+
