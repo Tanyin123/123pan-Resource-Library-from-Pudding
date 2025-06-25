@@ -1476,13 +1476,10 @@ https://github.com/dyphire/mpv-config
 
 - **按“Ctrl+' ”可以打开弹幕搜索框自行搜索弹幕**
 
-来自https://github.com/Tony15246/uosc_danmaku
-如果出现弹幕无法加载的问题，请到~~\mpv_config_BDCR\portable_config\script-opts\uosc_danmaku.conf
-中，将DanmakuFactory_Path和OpenCC_Path改成~~\mpv_config_BDCR\portable_config\scripts\uosc_danmaku\bin中对应的DanmakuFactory.exe和opencc.exe路径
+### 来自https://github.com/Tony15246/uosc_danmaku
 
-例：
-DanmakuFactory_Path=D:\mpv_config_BDCR\portable_config\scripts\uosc_danmaku\bin\DanmakuFactory\DanmakuFactory.exe
-OpenCC_Path=D:\mpv_config_BDCR\portable_config\scripts\uosc_danmaku\bin\OpenCC_Windows\opencc.exe
-
+`弹幕大小 42 `
+`透明度 80 `
+`弹幕出现位置 1.0`
 
 
