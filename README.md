@@ -1461,16 +1461,14 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 </details>
 
 
-# 布丁修改的MPV
+# 布丁在用的MPV
 
-以此处获得的成品MPV为基础，没有改很多东西
+以 [dyphire](https://github.com/dyphire/mpv-config) 为基础，没有改很多东西
 
 再此万分感谢这位大佬
 
-https://github.com/dyphire/mpv-config
-
 <details>
-<summary>📁 额外功能 (点击展开)</summary>
+<summary>📁 额外功能及具体更改内容 (点击展开)</summary>
 
 - **按“ ' ”可以开关弹幕（英文字符）**
 
@@ -1484,4 +1482,20 @@ https://github.com/dyphire/mpv-config
 
 `弹幕出现位置 1.0`
 
+`微软雅黑`
 
+`开启繁简转换 繁体→简体`
+
+`弹幕重叠是开启的`
+
+### 键位修改
+
+- **PGUP和PUDN互换了位置**
+
+- **清空滤镜改为Alt+0**
+
+- **ctrl+1的效果我感觉不佳，换成了一个组合着色器。原代码我打了#，可以在input.conf里面找到并改回**
+
+### 字体修改
+
+- **纯文本字幕默认字体修改为汉仪正圆**
