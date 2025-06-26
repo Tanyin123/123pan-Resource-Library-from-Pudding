@@ -1477,6 +1477,7 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 <summary>📁 下载链接 (点击展开)</summary>
 
   https://www.123912.com/s/lyn8Vv-391od提取码:BDCR
+</details>
 
 以 [dyphire \ mpv config](https://github.com/dyphire/mpv-config) 为基础，没有改很多东西 （其实是几乎一模一样）
 
@@ -1517,3 +1518,4 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 ### 字体修改
 
 - **纯文本字幕默认字体修改为汉仪正圆**
+</details>
