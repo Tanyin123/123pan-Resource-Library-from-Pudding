@@ -24,9 +24,6 @@
 - **小市民系列 (2024)**  
   `https://www.123912.com/s/lyn8Vv-Td1od?提取码:BDCR`
 
-- **打了300年史莱姆，不知不觉就练到了满级 (2021)**  
-  `https://www.123912.com/s/lyn8Vv-tqmod?提取码:BDCR`
-
 - **摇滚乃是淑女的爱好 (2025)**  
   `https://www.123912.com/s/lyn8Vv-iqmod?提取码:BDCR`
 
@@ -1934,7 +1931,7 @@ https://www.123912.com/s/lyn8Vv-cemod提取码:BDCR
 https://www.123912.com/s/lyn8Vv-Ntmod提取码:BDCR
 
 
-- **560-565**
+- **560-569**
 
 一脸嫌弃表情的妹子给你看胖次 (2018)
 2025-05-14 17:40:05
@@ -1954,22 +1951,21 @@ https://www.123912.com/s/lyn8Vv-Ntmod提取码:BDCR
 火鸟系列 (1980)
 2025/06/04 15:27:09
 
-https://www.123912.com/s/lyn8Vv-yQ1od?提取码:BDCR
-
 Overlord (2015)
 2025/05/13 16:41:08
-
-https://www.123912.com/s/lyn8Vv-Uo1od?提取码:BDCR
 
 男女之间存在纯友谊吗（不，不存在!!） (2025)
 2025/05/12 17:30:50
 
-https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
-
 机动战士高达系列 (1979)
 2025/04/17 21:18:36
 
-https://www.123912.com/s/lyn8Vv-7M1od?提取码:BDCR
+打了300年史莱姆，不知不觉就练到了满级 (2021)
+2025/04/06 12:35:02
+
+
+https://www.123912.com/s/lyn8Vv-ZM1od?提取码:BDCR
+
 
 </details>
 
