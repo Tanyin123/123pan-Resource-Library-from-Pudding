@@ -1491,7 +1491,7 @@ https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
 
 - **按 `Ctrl+'` 可以打开弹幕搜索框自行搜索弹幕**
 
-### 来自 [Tony15246](https://github.com/Tony15246/uosc_danmaku)
+### 以上效果来自 [Tony15246](https://github.com/Tony15246/uosc_danmaku) 的插件
 
 `弹幕大小 42 `
 
