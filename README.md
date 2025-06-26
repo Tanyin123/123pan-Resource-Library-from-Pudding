@@ -49,9 +49,6 @@
 - **末日后酒店 (2025)**  
   `https://www.123912.com/s/lyn8Vv-Lqmod?提取码:BDCR`
 
-- **机动战士高达 GQuuuuuuX (2025)**  
-  `https://www.123912.com/s/lyn8Vv-Znmod?提取码:BDCR`
-
 - **直至魔女消逝 (2025)**  
   `https://www.123912.com/s/lyn8Vv-qqmod?提取码:BDCR`
 
@@ -1447,6 +1444,11 @@ https://www.123912.com/s/lyn8Vv-Uo1od?提取码:BDCR
 男女之间存在纯友谊吗（不，不存在!!） (2025)
 2025/05/12 17:30:50
 https://www.123912.com/s/lyn8Vv-qVmod?提取码:BDCR
+
+机动战士高达系列 (1979)
+2025/04/17 21:18:36
+https://www.123912.com/s/lyn8Vv-7M1od?提取码:BDCR
+
 </details>
 
 # 违规文件秒传
