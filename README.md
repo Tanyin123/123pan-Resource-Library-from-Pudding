@@ -24,9 +24,6 @@
 - **小市民系列 (2024)**  
   `https://www.123912.com/s/lyn8Vv-Td1od?提取码:BDCR`
 
-- **摇滚乃是淑女的爱好 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-iqmod?提取码:BDCR`
-
 - **时光流逝，饭菜依旧美味 (2025)**  
   `https://www.123912.com/s/lyn8Vv-lemod?提取码:BDCR`
 
@@ -1968,6 +1965,11 @@ https://www.123912.com/s/lyn8Vv-ZM1od?提取码:BDCR
 2025/04/18 13:49:27
 
 https://www.123912.com/s/lyn8Vv-qqmod?提取码:BDCR
+
+摇滚乃是淑女的爱好 (2025)
+2025/04/28 20:44:28
+
+https://www.123912.com/s/lyn8Vv-iqmod?提取码:BDCR
 
 
 </details>
