@@ -2002,7 +2002,9 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 
 
 <details>
-<summary>📁 下载链接 (点击展开)</summary>
+<summary>📁 漫画列表 (点击展开)</summary>
+
+### 漫画列表
 
 - **蘑菇的拟态日常**  
   `https://www.123912.com/s/lyn8Vv-dg1od?提取码:BDCR`
