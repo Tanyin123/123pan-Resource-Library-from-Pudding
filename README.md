@@ -39,9 +39,6 @@
 - **鬼人幻灯抄 (2025)**  
   `https://www.123912.com/s/lyn8Vv-jqmod?提取码:BDCR`
 
-- **随兴旅-That's Journey- (2025)**  
-  `https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR`
-
 - **前桥魔女 (2025)**  
   `https://www.123912.com/s/lyn8Vv-hJ1od?提取码:BDCR`
 </details>
@@ -1970,6 +1967,11 @@ https://www.123912.com/s/lyn8Vv-qqmod?提取码:BDCR
 2025/04/28 20:44:28
 
 https://www.123912.com/s/lyn8Vv-iqmod?提取码:BDCR
+
+随兴旅-That's Journey- (2025)
+2025/05/23 11:34:38
+
+https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 
 
 </details>
