@@ -1985,6 +1985,9 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 
 - **憧憬成为魔法少女 (2023)**  
   `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
+
+- **触手漫合集秒传 (布丁严选)**
+  `https://www.123912.com/s/lyn8Vv-3g1od?提取码:BDCR`
 </details>
 
 <details>
