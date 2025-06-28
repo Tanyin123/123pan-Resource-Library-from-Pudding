@@ -1998,6 +1998,17 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 </details>
 
 
+# 漫画
+
+
+<details>
+<summary>📁 下载链接 (点击展开)</summary>
+
+- **蘑菇的拟态日常**  
+  `https://www.123912.com/s/lyn8Vv-dg1od?提取码:BDCR`
+
+</details>
+
 # 布丁在用的MPV
 
 <details>
