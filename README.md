@@ -2066,3 +2066,8 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 
 - **纯文本字幕默认字体修改为汉仪正圆**
 </details>
+
+
+# Star History
+
+  [![Star History Chart](https://api.star-history.com/svg?repos=Tanyin123/123pan-Resource-Library-from-Pudding&type=Date)](https://github.com/Tanyin123/123pan-Resource-Library-from-Pudding)
