@@ -1990,7 +1990,7 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
   `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
 
 - **触手漫合集 (布丁严选)**
-  `严选中，不能敷衍了事`
+  `https://www.123912.com/s/lyn8Vv-rY1od?提取码:BDCR`
 </details>
 
 <details>
