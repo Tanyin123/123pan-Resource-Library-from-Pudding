@@ -15,7 +15,7 @@
 ### [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
   
 ### 影视资源列表
-- **章鱼哔的原罪 (2025)**
+- **章鱼哔的原罪 (2025)**  
   `https://www.123912.com/s/lyn8Vv-Ug1od?提取码:BDCR`
 
 - **mono女孩 (2025)**  
@@ -1989,7 +1989,7 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 - **憧憬成为魔法少女 (2023)**  
   `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
 
-- **触手漫合集 (布丁严选)**
+- **布丁严选触手本合集带刮削 25.07.01更新**  
   `https://www.123912.com/s/lyn8Vv-rY1od?提取码:BDCR`
 </details>
 
@@ -1999,7 +1999,7 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 ### [realcwj的github链接](https://github.com/realcwj/123Pan-Unlimited-Share)
 当然，这个文件也可以用前面的油猴脚本秒传到自己的网盘中
 
-- **攻壳机动队系列 (1995)**
+- **攻壳机动队系列 (1995)**  
   `https://www.123912.com/s/lyn8Vv-1jmod?提取码:BDCR`
 </details>
 
@@ -2016,6 +2016,26 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
   `https://www.123912.com/s/lyn8Vv-dg1od?提取码:BDCR`
 
 </details>
+
+<details>
+<summary>📁 本子列表 (点击展开)</summary>
+
+### 本子列表，只有触手本
+### 系列本子放一起
+### 不会用的话请看 `# 违规文件秒传` 板块
+
+- **布丁严选触手本合集带刮削 25.07.01更新**  
+  `https://www.123912.com/s/lyn8Vv-rY1od?提取码:BDCR`
+
+- **Connect-少女は触手と愛をつむぐ**  
+  `https://www.123912.com/s/lyn8Vv-8Y1od?提取码:BDCR`
+
+- **なぎさとミヅキ 触手脳クチュ異種和姦**  
+  `https://www.123912.com/s/lyn8Vv-KY1od?提取码:BDCR`
+
+- **上級術師が後輩に触手で敗かされる話**  
+  `https://www.123912.com/s/lyn8Vv-uY1od?提取码:BDCR`
+
 
 # 布丁在用的MPV
 
