@@ -2035,7 +2035,7 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 
 - **上級術師が後輩に触手で敗かされる話**  
   `https://www.123912.com/s/lyn8Vv-uY1od?提取码:BDCR`
-
+</details>
 
 # 布丁在用的MPV
 
