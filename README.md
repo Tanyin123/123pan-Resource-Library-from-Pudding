@@ -1990,7 +1990,7 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
   `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
 
 - **布丁严选触手本合集带刮削 25.07.01更新**  
-  `https://www.123912.com/s/lyn8Vv-rY1od?提取码:BDCR`
+  `https://www.123912.com/s/lyn8Vv-bY1od?提取码:BDCR`
 </details>
 
 <details>
@@ -2025,13 +2025,13 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 ### 不会用的话请看 `# 违规文件秒传` 板块
 
 - **布丁严选触手本合集带刮削 25.07.01更新**  
-  `https://www.123912.com/s/lyn8Vv-rY1od?提取码:BDCR`
+  `https://www.123912.com/s/lyn8Vv-bY1od?提取码:BDCR`
 
 - **Connect-少女は触手と愛をつむぐ**  
   `https://www.123912.com/s/lyn8Vv-8Y1od?提取码:BDCR`
 
-- **なぎさとミヅキ 触手脳クチュ異種和姦**  
-  `https://www.123912.com/s/lyn8Vv-KY1od?提取码:BDCR`
+- **異界異種姦～触手の恩返し～**  
+  `https://www.123912.com/s/lyn8Vv-7Y1od?提取码:BDCR`
 
 - **上級術師が後輩に触手で敗かされる話**  
   `https://www.123912.com/s/lyn8Vv-uY1od?提取码:BDCR`
