@@ -1998,8 +1998,9 @@ https://www.123912.com/s/lyn8Vv-zY1od?提取码:BDCR
 - **憧憬成为魔法少女 (2023)**  
   `https://www.123912.com/s/lyn8Vv-Qymod?提取码:BDCR`
 
-- **布丁严选触手本合集带刮削 25.07.01更新**  
-  `https://www.123912.com/s/lyn8Vv-bY1od?提取码:BDCR`
+- **布丁严选触手本合集带刮削**  
+  `合集 https://www.123912.com/s/lyn8Vv-VY1od?提取码:BDCR`  
+  `刮削元数据 https://www.123912.com/s/lyn8Vv-jY1od?提取码:BDCR`  
 </details>
 
 <details>
@@ -2033,9 +2034,10 @@ https://www.123912.com/s/lyn8Vv-zY1od?提取码:BDCR
 ### 系列本子放一起
 ### 不会用的话请看 [# 违规文件秒传](https://github.com/Tanyin123/123pan-Resource-Library-from-Pudding?tab=readme-ov-file#%E8%BF%9D%E8%A7%84%E6%96%87%E4%BB%B6%E7%A7%92%E4%BC%A0) 板块
 
-- **布丁严选触手本合集带刮削 25.07.01更新**  
-  `https://www.123912.com/s/lyn8Vv-bY1od?提取码:BDCR`
-
+- **布丁严选触手本合集带刮削**  
+  `合集 https://www.123912.com/s/lyn8Vv-VY1od?提取码:BDCR`  
+  `刮削元数据 https://www.123912.com/s/lyn8Vv-jY1od?提取码:BDCR`
+  
 - **Connect-少女は触手と愛をつむぐ**  
   `https://www.123912.com/s/lyn8Vv-8Y1od?提取码:BDCR`
 
@@ -2044,6 +2046,10 @@ https://www.123912.com/s/lyn8Vv-zY1od?提取码:BDCR
 
 - **上級術師が後輩に触手で敗かされる話**  
   `https://www.123912.com/s/lyn8Vv-uY1od?提取码:BDCR`
+
+- **百合天使と愛ノ鬼**  
+  `https://www.123912.com/s/lyn8Vv-qY1od?提取码:BDCR`
+
 </details>
 
 # 布丁在用的MPV
