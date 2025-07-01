@@ -2022,7 +2022,7 @@ https://www.123912.com/s/lyn8Vv-3Vmod?提取码:BDCR
 
 ### 本子列表，只有触手本
 ### 系列本子放一起
-### 不会用的话请看 `# 违规文件秒传` 板块
+### 不会用的话请看 [# 违规文件秒传](https://github.com/Tanyin123/123pan-Resource-Library-from-Pudding?tab=readme-ov-file#%E8%BF%9D%E8%A7%84%E6%96%87%E4%BB%B6%E7%A7%92%E4%BC%A0) 板块
 
 - **布丁严选触手本合集带刮削 25.07.01更新**  
   `https://www.123912.com/s/lyn8Vv-bY1od?提取码:BDCR`
