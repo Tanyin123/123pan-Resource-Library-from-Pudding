@@ -30,9 +30,6 @@
 - **时光流逝，饭菜依旧美味 (2025)**  
   `https://www.123912.com/s/lyn8Vv-lemod?提取码:BDCR`
 
-- **末日后酒店 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-Lqmod?提取码:BDCR`
-
 - **药屋少女的呢喃 (2023)**  
   `https://www.123912.com/s/lyn8Vv-6qmod?提取码:BDCR`
 
@@ -1985,6 +1982,11 @@ Monster (2004)
 2025/07/01 21:59:42
 
 https://www.123912.com/s/lyn8Vv-zY1od?提取码:BDCR
+
+末日后酒店 (2025)
+2025/05/17 16:07:46
+
+https://www.123912.com/s/lyn8Vv-Lqmod?提取码:BDCR
 
 </details>
 
