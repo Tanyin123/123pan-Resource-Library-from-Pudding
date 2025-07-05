@@ -27,9 +27,6 @@
 - **小市民系列 (2024)**  
   `https://www.123912.com/s/lyn8Vv-Td1od?提取码:BDCR`
 
-- **药屋少女的呢喃 (2023)**  
-  `https://www.123912.com/s/lyn8Vv-6qmod?提取码:BDCR`
-
 - **鬼人幻灯抄 (2025)**  
   `https://www.123912.com/s/lyn8Vv-jqmod?提取码:BDCR`
 
@@ -2017,6 +2014,16 @@ https://www.123912.com/s/lyn8Vv-lemod?提取码:BDCR
 2025/06/21 21:04:37
 
 https://www.123912.com/s/lyn8Vv-hJ1od?提取码:BDCR
+
+药屋少女的呢喃 (2023)
+2025/04/05 21:43:12
+
+https://www.123912.com/s/lyn8Vv-6qmod?提取码:BDCR
+
+受到猩猩之神庇护的大小姐在皇家骑士团受到宠爱 (2025)
+2025/07/04 13:19:35
+
+https://www.123912.com/s/lyn8Vv-LX1od?提取码:BDCR
 
 
 </details>
