@@ -36,6 +36,9 @@
 - **转生成自动贩卖机的我今天也在迷宫徘徊 (2023)**  
   `https://www.123912.com/s/lyn8Vv-tX1od?提取码:BDCR`
 
+- **彻夜之歌 (2022)**
+  `https://www.123912.com/s/lyn8Vv-Bn1od?提取码:BDCR`
+
 
 </details>
 
