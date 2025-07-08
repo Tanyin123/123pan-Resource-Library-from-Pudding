@@ -7,6 +7,8 @@
 
 遇到这种情况可以在无痕浏览下打开链接，或者复制链接到123云盘客户端打开。
 
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Tanyin123&show_icons=true&theme=transparent)
+
 # 更新中番剧
 
 <details>
@@ -2147,7 +2149,3 @@ https://www.123912.com/s/lyn8Vv-Td1od?提取码:BDCR
 
 - **纯文本字幕默认字体修改为汉仪正圆**
 </details>
-
-
-# GitHub 统计卡
-![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Tanyin123&show_icons=true&theme=transparent)
