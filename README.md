@@ -2151,4 +2151,10 @@ https://www.123912.com/s/lyn8Vv-Td1od?提取码:BDCR
 
 ## Star History
 
-[![Star History Chart](https://api.star-history.com/svg?repos=Tanyin123/123pan-Resource-Library-from-Pudding&type=Date)](https://www.star-history.com/#Tanyin123/123pan-Resource-Library-from-Pudding&Date)
+<a href="https://www.star-history.com/#Tanyin123/123pan-Resource-Library-from-Pudding&Date">
+ <picture>
+   <source media="(prefers-color-scheme: dark)" srcset="https://api.star-history.com/svg?repos=Tanyin123/123pan-Resource-Library-from-Pudding&type=Date&theme=dark" />
+   <source media="(prefers-color-scheme: light)" srcset="https://api.star-history.com/svg?repos=Tanyin123/123pan-Resource-Library-from-Pudding&type=Date" />
+   <img alt="Star History Chart" src="https://api.star-history.com/svg?repos=Tanyin123/123pan-Resource-Library-from-Pudding&type=Date" />
+ </picture>
+</a>
