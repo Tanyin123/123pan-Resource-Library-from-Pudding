@@ -36,6 +36,9 @@
 - **彻夜之歌 (2022)**  
   `https://www.123912.com/s/lyn8Vv-Bn1od?提取码:BDCR`
 
+- **碧蓝之海 (2018)**  
+  `https://www.123912.com/s/lyn8Vv-V21od?提取码:BDCR`
+
 
 </details>
 
