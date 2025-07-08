@@ -44,6 +44,8 @@
 - **小城日常 (2025)**  
   `https://www.123912.com/s/lyn8Vv-3s1od?提取码:BDCR`
 
+- **我怎么可能成为你的恋人，不行不行！(※不是不可能！？) (2025)**  
+  `https://www.123912.com/s/lyn8Vv-Qs1od?提取码:BDCR`
 
 </details>
 
