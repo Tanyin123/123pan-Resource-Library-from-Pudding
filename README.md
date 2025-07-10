@@ -17,6 +17,9 @@
 ### [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
   
 ### 影视资源列表
+- **新吊带袜天使 (2025)**  
+  `https://www.123912.com/s/lyn8Vv-YW1od?提取码:BDCR`
+
 - **章鱼哔的原罪 (2025)**  
   `https://www.123912.com/s/lyn8Vv-Ug1od?提取码:BDCR`
 
