@@ -17,6 +17,9 @@
 ### [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
   
 ### 影视资源列表
+- **胆大党 (2024)**  
+  `https://www.123912.com/s/lyn8Vv-KW1od?提取码:BDCR`
+
 - **新吊带袜天使 (2025)**  
   `https://www.123912.com/s/lyn8Vv-YW1od?提取码:BDCR`
 
