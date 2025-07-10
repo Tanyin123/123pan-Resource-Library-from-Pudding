@@ -2091,7 +2091,7 @@ https://www.123912.com/s/lyn8Vv-PW1od?提取码:BDCR
 <details>
 <summary>📁 本子列表 (点击展开)</summary>
 
-### 本子列表，只有触手本
+### 本子列表，只有触手本，布丁严选无毒本
 ### 系列本子放一起
 ### 不会用的话请看 [# 违规文件秒传](https://github.com/Tanyin123/123pan-Resource-Library-from-Pudding?tab=readme-ov-file#%E8%BF%9D%E8%A7%84%E6%96%87%E4%BB%B6%E7%A7%92%E4%BC%A0) 板块
 
@@ -2110,6 +2110,9 @@ https://www.123912.com/s/lyn8Vv-PW1od?提取码:BDCR
 
 - **百合天使と愛ノ鬼**  
   `https://www.123912.com/s/lyn8Vv-qY1od?提取码:BDCR`
+
+- **戯れ神隠し**  
+  `https://www.123912.com/s/lyn8Vv-CW1od?提取码:BDCR`
 
 </details>
 
