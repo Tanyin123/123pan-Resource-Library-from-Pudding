@@ -7,6 +7,8 @@
 
 遇到这种情况可以在无痕浏览下打开链接，或者复制链接到123云盘客户端打开。
 
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Tanyin123&show_icons=true&theme=transparent)
+
 # 更新中番剧
 
 <details>
