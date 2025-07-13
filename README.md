@@ -17,6 +17,9 @@
 ### [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
   
 ### 影视资源列表
+-**青春猪头少年系列 (2018)**  
+  `https://www.123912.com/s/lyn8Vv-ZN1od?提取码:BDCR`
+
 - **薰香花朵凛然绽放 (2025)**  
   `https://www.123912.com/s/lyn8Vv-7N1od?提取码:BDCR`
 
