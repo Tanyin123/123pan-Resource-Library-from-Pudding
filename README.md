@@ -2131,6 +2131,9 @@ https://www.123912.com/s/lyn8Vv-4Jmod?提取码:BDCR
 - **テンタクルーティン**  
   `https://www.123912.com/s/lyn8Vv-TR1od?提取码:BDCR`
 
+- **マリー触手堕ち**  
+  `https://www.123912.com/s/lyn8Vv-jR1od?提取码:BDCR`
+
 </details>
 
 # 布丁在用的MPV
