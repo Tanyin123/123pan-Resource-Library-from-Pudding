@@ -2137,6 +2137,9 @@ https://www.123912.com/s/lyn8Vv-4Jmod?提取码:BDCR
 - **人権破壊工場～完全破壊マニュアル～**  有毒慎看  
   `https://www.123912.com/s/lyn8Vv-F81od?pwd=BDCR`
 
+- **開けちゃダメ!**  
+  `https://www.123912.com/s/lyn8Vv-c81od?pwd=BDCR`
+
 </details>
 
 # 布丁在用的MPV
