@@ -2140,6 +2140,9 @@ https://www.123912.com/s/lyn8Vv-4Jmod?提取码:BDCR
 - **開けちゃダメ!**  
   `https://www.123912.com/s/lyn8Vv-c81od?pwd=BDCR`
 
+- **シスターと触手の懺悔室**  
+  `https://www.123912.com/s/lyn8Vv-R01od?pwd=BDCR`
+
 </details>
 
 # 布丁在用的MPV
