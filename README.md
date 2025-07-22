@@ -2143,6 +2143,9 @@ https://www.123912.com/s/lyn8Vv-4Jmod?提取码:BDCR
 - **シスターと触手の懺悔室**  
   `https://www.123912.com/s/lyn8Vv-R01od?pwd=BDCR`
 
+- **友達♀が触手だったんですけど! ～しょくしゅなる・センセーション**  
+  `https://www.123912.com/s/lyn8Vv-mK1od?pwd=BDCR`
+
 </details>
 
 # 布丁在用的MPV
