@@ -2146,6 +2146,9 @@ https://www.123912.com/s/lyn8Vv-4Jmod?提取码:BDCR
 - **友達♀が触手だったんですけど! ～しょくしゅなる・センセーション**  
   `https://www.123912.com/s/lyn8Vv-mK1od?pwd=BDCR`
 
+- **触手少女とこわれた聖女～**  
+  `https://www.123912.com/s/lyn8Vv-2U1od?pwd=BDCR`
+
 </details>
 
 # 布丁在用的MPV
