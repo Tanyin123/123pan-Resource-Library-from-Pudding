@@ -2153,6 +2153,9 @@ https://www.123912.com/s/lyn8Vv-Gl1od?pwd=BDCR
 - **触手少女とこわれた聖女～**  
   `https://www.123912.com/s/lyn8Vv-2U1od?pwd=BDCR`
 
+- **艦隊これくしょん -艦これ-**  
+  `https://www.123912.com/s/lyn8Vv-Ib1od?pwd=BDCR`
+
 </details>
 
 # 布丁在用的MPV
