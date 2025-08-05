@@ -32,9 +32,6 @@
 - **新吊带袜天使 (2025)**  
   `https://www.123912.com/s/lyn8Vv-YW1od?提取码:BDCR`
 
-- **章鱼哔的原罪 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-Ug1od?提取码:BDCR`
-
 - **mono女孩 (2025)**  
   `https://www.123912.com/s/lyn8Vv-iWmod?提取码:BDCR`
 
@@ -78,6 +75,8 @@
 
 <details>
 <summary>📁 查看资源列表 (点击展开)</summary>
+
+[总链接](https://www.123912.com/s/lyn8Vv-qt1od?pwd=BDCR)
 
 - **1-18**
 
