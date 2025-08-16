@@ -2110,6 +2110,7 @@ https://www.123912.com/s/lyn8Vv-Gl1od?pwd=BDCR
 
 ### 本子列表，只有触手本，布丁严选无毒本
 ### 系列本子放一起
+### 因为分享被封所以不再更新了
 ### 不会用的话请看 [# 违规文件秒传](https://github.com/Tanyin123/123pan-Resource-Library-from-Pudding?tab=readme-ov-file#%E8%BF%9D%E8%A7%84%E6%96%87%E4%BB%B6%E7%A7%92%E4%BC%A0) 板块
 
 - **布丁严选触手本合集带刮削**  
