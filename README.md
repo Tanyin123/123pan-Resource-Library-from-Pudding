@@ -17,44 +17,9 @@
 ### [总链接](https://www.123912.com/s/lyn8Vv-Xqmod?提取码:BDCR)
   
 ### 影视资源列表
-- **与游戏中心的少女异文化交流的故事 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-5O1od?提取码:BDCR`
 
-- **青春猪头少年系列 (2018)**  
-  `https://www.123912.com/s/lyn8Vv-ZN1od?提取码:BDCR`
-
-- **薰香花朵凛然绽放 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-7N1od?提取码:BDCR`
-
-- **胆大党 (2024)**  
-  `https://www.123912.com/s/lyn8Vv-KW1od?提取码:BDCR`
-
-- **新吊带袜天使 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-YW1od?提取码:BDCR`
-
-- **mono女孩 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-iWmod?提取码:BDCR`
-
-- **鬼人幻灯抄 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-jqmod?提取码:BDCR`
-
-- **沉默魔女的秘密 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-eX1od?提取码:BDCR`
-
-- **转生成自动贩卖机的我今天也在迷宫徘徊 (2023)**  
-  `https://www.123912.com/s/lyn8Vv-tX1od?提取码:BDCR`
-
-- **彻夜之歌 (2022)**  
-  `https://www.123912.com/s/lyn8Vv-Bn1od?提取码:BDCR`
-
-- **碧蓝之海 (2018)**  
-  `https://www.123912.com/s/lyn8Vv-V21od?提取码:BDCR`
-
-- **小城日常 (2025)**  
-  `https://www.123912.com/s/lyn8Vv-3s1od?提取码:BDCR`
-
-- **我怎么可能成为你的恋人，不行不行！(※不是不可能！？) (2025)**  
-  `https://www.123912.com/s/lyn8Vv-Qs1od?提取码:BDCR`
+- **绝妙舞步 (2025) (2025)**  
+  `https://www.123865.com/s/lyn8Vv-kz4od?pwd=BDCR#`
 
 </details>
 
