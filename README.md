@@ -7,7 +7,6 @@
 
 遇到这种情况可以在无痕浏览下打开链接，或者复制链接到123云盘客户端打开。
 
-![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Tanyin123&show_icons=true&theme=transparent)
 
 # 更新中番剧
 
@@ -18,8 +17,8 @@
   
 ### 影视资源列表
 
-- **绝妙舞步 (2025) (2025)**  
-  `https://www.123865.com/s/lyn8Vv-kz4od?pwd=BDCR#`
+- **靠死亡游戏混饭吃。 (2026)**  
+  `https://www.123865.com/s/lyn8Vv-jRxod?pwd=BDCR#`
 
 </details>
 
